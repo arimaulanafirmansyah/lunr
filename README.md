@@ -1,2 +1,2 @@
 # lunr
-https://lnr.app/s/lRqgGY
+https://lnr.app/s/6gxKJo
